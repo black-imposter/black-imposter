@@ -24,5 +24,24 @@ $\color{#ff0000}{black's~fan}$
 
 <img src="https://github.com/user-attachments/assets/ee6c336a-44fa-4c26-a4a9-61965d1f5cd6" alt="" width="300">
 
-game on development, publishing it probably soon
+#
 
+$\color{#ff0000}{DNI(uid)~list}$
+
+$\color{#ff0000}{TCOAAL~fandom(iwec)}$
+
+my ex's friends (dni pls)
+
+$\color{#ff0000}{Qwelver's~supporters}$
+
+homophobics / transphobics
+
+$\color{#ff0000}{problematic~people}$
+
+basic dni
+
+#
+
+<img src="https://github.com/user-attachments/assets/f3c169c2-15bb-4c47-8a88-229dea65449c" alt="" width="300">
+
+the game Sunville is still on dev, it will be linked if its released
