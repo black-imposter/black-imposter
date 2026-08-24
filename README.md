@@ -16,6 +16,10 @@ $\color{#ff0000}{FNF~player}$
 
 $\color{#ff0000}{Transgender}$
 
+$\color{#ff0000}{Peruvian}$
+
+$\color{#ff0000}{black's~fan}$
+
 #
 
 <img src="https://github.com/user-attachments/assets/ee6c336a-44fa-4c26-a4a9-61965d1f5cd6" alt="" width="300">
