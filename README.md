@@ -44,4 +44,18 @@ basic dni
 
 <img src="https://github.com/user-attachments/assets/f3c169c2-15bb-4c47-8a88-229dea65449c" alt="" width="300">
 
-the game Sunville is still on dev, it will be linked if its released
+the game Sunville is still on (HIATUSS OML), it will be linked if its released
+
+reason why is it on hiatus: i want to change my actions and everything i did wrong, i am aware what i did wrong and im so sorry about that. probably coming back in months or idk, depending
+
+of course i will come back
+
+and i will change
+
+i think i will be on hiatus in 25/08, calculating back innn.. idk, bye anyways
+
+pls dont send me hate
+
+i say it bc of these two who still sending me hate
+
+ok bye
